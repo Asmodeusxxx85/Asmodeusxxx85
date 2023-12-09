@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @Asmodeusxxx85
-- 👀 I’m interested in ...
-- 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...
+- 👀 I’m interested in only gays 
+- 🌱 I’m currently learning about the life
+- 💞️ I’m looking to collaborate on orgys, videos, etc
+- 📫 How to reach me ... WhatsApp	
 
-Christopher Petrov  
+Asmodeus 
 
